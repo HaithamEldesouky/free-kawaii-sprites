@@ -2,6 +2,8 @@
 
 ![preview](preview.png)
 
+**[Download all files (ZIP)](https://github.com/HaithamEldesouky/free-kawaii-sprites/archive/refs/heads/main.zip)**
+
 Five cute sprites, free for your games, apps, stickers and printables:
 whale, strawberry, rocket, pig and cupcake.
 
