@@ -14,9 +14,9 @@ whale, strawberry, rocket, pig and cupcake.
 ## Want all 25?
 
 The full pack has 25 sprites (sea animals, farm animals, food and space):
-**[Cute Kawaii Clipart - 25 PNG on Gumroad](https://eldesouky4.gumroad.com/l/cute-kawaii-clipart)**
+**[Cute Kawaii Clipart - 25 PNG on Gumroad](https://haithameldesouky.gumroad.com/l/cute-kawaii-clipart)**
 
-More clipart and patterns: [eldesouky4.gumroad.com](https://eldesouky4.gumroad.com)
+More clipart and patterns: [haithameldesouky.gumroad.com](https://haithameldesouky.gumroad.com)
 
 ## Licence
 
